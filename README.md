@@ -1,0 +1,2 @@
+# ntk
+nguyễn tấn kha
